@@ -1,16 +1,11 @@
-Hey, I’m Parikta
+👋 Hey, I’m Parikta!
+🌟 About Me
+Interested to know more about me? Let's see... 🤔
 
--Interested to know more about me?
+I'm a tech nerd 🤓, crazy about any new tech 🛠️, inventions 💡, and pretty much anything that is creative and unique 🎨. I’m always interested and curious to talk or collaborate on projects that are creative ✨, original , futuristic 🚀, and tech-related 🌐.
 
+If you have an idea 💡 and you want to scale it up 📈 or just need another mind to make it true 🤝, congrats—you found me! ✌🏻
 
-Let's see...🤔
+📬 Contact
+Feel free to reach out:
 
-I'm a tech nerd and crazy about any new tech, inventions and pretty much anything that is creative and unique.
-
-Well, that being said, you will always find me interested/curious to talk or collaborate with you in anything that is creative, original, futuristic and above. Tech-related.
-
-If you have an idea and you want to scale it up or just another mind to make it true, congrats you found me✌🏻.
-
-You can reach me at
-
-Mail: bparikta@gmail.com
